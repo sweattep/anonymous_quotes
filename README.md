@@ -24,3 +24,5 @@ or nobles, "You are wicked men!"
 then you shouldn't condemn the Just and Mighty One
 who is neither partial towards princes
 nor favors the rich over the poor
+
+>The words of the wise spoken in quiet are more acceptable than the cry of a ruler among fools    
