@@ -17,3 +17,10 @@ a time to tear, and a time to sew;
 a time to keep silence, and a time to speak;
 a time to love, and a time to hate;
 a time for war, and a time for peace.
+
+>Should a hater of justice be in control?
+If you wouldn't tell a king, "You're a scoundrel!"
+or nobles, "You are wicked men!"
+then you shouldn't condemn the Just and Mighty One
+who is neither partial towards princes
+nor favors the rich over the poor
