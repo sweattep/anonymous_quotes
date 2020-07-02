@@ -28,3 +28,8 @@ who is neither partial towards princes
 nor favors the rich over the poor
 
 >The words of the wise spoken in quiet are more acceptable than the cry of a ruler among fools    
+
+>How does the man you love differ from any other,
+you most beautiful of women?
+How does the man you love differ from any other,
+that you should give us this charge?
