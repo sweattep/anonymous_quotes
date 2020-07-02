@@ -2,6 +2,8 @@
 who have shared in the Holy Spirit, who have tasted the goodness of the word of God and the powers of the coming age - and then have fallen away -
 to be restored to repentance, because they themselves are crucifying the Son of God all over again and subjecting Him to open shame.
 
+>Remember your leaders who taught you the word of God. Think of all the good that has come from their lives, and follow the example of their faith.
+
 >For everything there is a season, and a time for every matter under heaven:
 a time to be born, and a time to die;
 a time to plant, and a time to pluck up what is planted;
