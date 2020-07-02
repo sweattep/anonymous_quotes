@@ -29,6 +29,8 @@ nor favors the rich over the poor
 
 >The words of the wise spoken in quiet are more acceptable than the cry of a ruler among fools    
 
+>So we must listen very carefully  to the truth that we have heard, or we may drift away from it.
+
 >How does the man you love differ from any other,
 you most beautiful of women?
 How does the man you love differ from any other,
