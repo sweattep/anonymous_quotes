@@ -33,3 +33,10 @@ nor favors the rich over the poor
 you most beautiful of women?
 How does the man you love differ from any other,
 that you should give us this charge?
+
+>Who put wisdom in people's inner parts?
+Who gave understanding to the mind?
+Who, by wisdom, can number the clouds?
+Who can tilt the water-skins of heaven,
+so that the dust becomes a mass,
+and its clods stick together?
