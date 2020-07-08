@@ -48,3 +48,5 @@ and its clods stick together?
 >If a man dies, will he live again? All days of my warfare I wait, till my change come.
 
 >Human life is like forced army service, like a life of hard manual labor
+
+>We blossom like a flower and then wither. Like a passing shadow, we quickly disappear.
