@@ -4,6 +4,8 @@ to be restored to repentance, because they themselves are crucifying the Son of 
 
 >Remember your leaders who taught you the word of God. Think of all the good that has come from their lives, and follow the example of their faith.
 
+>By faith we understand that the entire universe was formed at God's command, that what we now see did not come from anything that can be seen.
+
 >For everything there is a season, and a time for every matter under heaven:
 a time to be born, and a time to die;
 a time to plant, and a time to pluck up what is planted;
