@@ -44,3 +44,7 @@ Who, by wisdom, can number the clouds?
 Who can tilt the water-skins of heaven,
 so that the dust becomes a mass,
 and its clods stick together?
+
+>If a man dies, will he live again? All days of my warfare I wait, till my change come.
+
+>Human life is like forced army service, like a life of hard manual labor
