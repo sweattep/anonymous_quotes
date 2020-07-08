@@ -50,3 +50,5 @@ and its clods stick together?
 >Human life is like forced army service, like a life of hard manual labor
 
 >We blossom like a flower and then wither. Like a passing shadow, we quickly disappear.
+
+>Now when people take an oath, they call on someone greater than  themselves to hold them to it. And without any question that oath is binding.
