@@ -54,3 +54,5 @@ and its clods stick together?
 >We blossom like a flower and then wither. Like a passing shadow, we quickly disappear.
 
 >Now when people take an oath, they call on someone greater than  themselves to hold them to it. And without any question that oath is binding.
+
+>Behold they that serve him are not steadfast, and in his angels he found wickedness
