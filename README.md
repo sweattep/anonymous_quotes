@@ -60,3 +60,5 @@ and its clods stick together?
 >Are you going to keep to the old way, the one the wicked have trodden
 
 >Can his armies be numbered? On whom does his light not shine?
+
+>If he took you to court, could you fool him, just as you fool others?
