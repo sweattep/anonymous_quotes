@@ -62,3 +62,5 @@ and its clods stick together?
 >Can his armies be numbered? On whom does his light not shine?
 
 >If he took you to court, could you fool him, just as you fool others?
+
+>Buy the truth, don't sell it, also wisdom, discipline, and discernment.
