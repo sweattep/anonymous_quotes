@@ -2,6 +2,9 @@
 who have shared in the Holy Spirit, who have tasted the goodness of the word of God and the powers of the coming age - and then have fallen away -
 to be restored to repentance, because they themselves are crucifying the Son of God all over again and subjecting Him to open shame.
 
+>The law is only a shadow of the good things that are coming--not the realities themselves. 
+For this reason it can never, by the same sacrifices repeated endlessly year after year, make perfect those who draw near to worship.
+
 >Remember your leaders who taught you the word of God. Think of all the good that has come from their lives, and follow the example of their faith.
 
 >By faith we understand that the entire universe was formed at God's command, that what we now see did not come from anything that can be seen.
