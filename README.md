@@ -64,3 +64,5 @@ and its clods stick together?
 >If he took you to court, could you fool him, just as you fool others?
 
 >Buy the truth, don't sell it, also wisdom, discipline, and discernment.
+
+>Look, before God I'm the same as you; I too am fashioned from clay.
