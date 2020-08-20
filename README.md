@@ -69,3 +69,5 @@ and its clods stick together?
 >Buy the truth, don't sell it, also wisdom, discipline, and discernment.
 
 >Look, before God I'm the same as you; I too am fashioned from clay.
+
+>Complete your outdoor work, and prepare your field; after that, you can build your house.
