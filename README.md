@@ -71,3 +71,15 @@ and its clods stick together?
 >Look, before God I'm the same as you; I too am fashioned from clay.
 
 >Complete your outdoor work, and prepare your field; after that, you can build your house.
+
+>To cherish knowledge is to know wisdom. Wisdom is given by the Creator to be used for the good of the people. 
+
+>Love must be unconditional. When people are weak they need love the most. 
+
+>Have respect for all that is. All of creation should be treated with respect. You must give respect if you wish to be respected. 
+
+>To face a foe with integrity. To do what's right even when the consequences are unpleasant. 
+
+>You are equal to others, but you are not better.
+
+>Speak the truth. Do not deceive yourself or others.
