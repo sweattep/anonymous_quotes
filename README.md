@@ -2,6 +2,8 @@
 who have shared in the Holy Spirit, who have tasted the goodness of the word of God and the powers of the coming age - and then have fallen away -
 to be restored to repentance, because they themselves are crucifying the Son of God all over again and subjecting Him to open shame.
 
+>And without question, the person who has the power to give a blessing is greater than the one who is blessed.
+
 >The law is only a shadow of the good things that are coming--not the realities themselves. 
 For this reason it can never, by the same sacrifices repeated endlessly year after year, make perfect those who draw near to worship.
 
