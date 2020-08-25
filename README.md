@@ -80,7 +80,7 @@ and its clods stick together?
 
 >Have respect for all that is. All of creation should be treated with respect. You must give respect if you wish to be respected. 
 
->To face a foe with integrity. To do what's right even when the consequences are unpleasant. 
+>Face a foe with integrity. Do what's right even when the consequences are unpleasant. 
 
 >You are equal to others, but you are not better.
 
