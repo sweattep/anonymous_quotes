@@ -74,6 +74,8 @@ and its clods stick together?
 
 >Complete your outdoor work, and prepare your field; after that, you can build your house.
 
+>They made me the keeper of the vineyards; but my own vineyard have I not kept
+
 >To cherish knowledge is to know wisdom. Wisdom is given by the Creator to be used for the good of the people. 
 
 >Love must be unconditional. When people are weak they need love the most. 
